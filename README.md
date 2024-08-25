@@ -2,7 +2,7 @@
 
 🚀 **Robotics Engineer | Marine & Maritime Intelligent Robotics Specialist | AI & Automation Enthusiast**  
 🌍 **Currently Based in Toulon, France**  
-📧 [mdeather0056@outlook.com](mailto:mdeather0056@gmail.com)  
+📧 [mdeather0056@gmail.com](mailto:mdeather0056@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/md-ether-deowan-787241172/) | [Google Scholar](https://scholar.google.com/citations?user=q-8E8kIAAAAJ&hl=en) | [GitHub](https://github.com/eather0056) | [MATLAB Profile](https://www.mathworks.com/matlabcentral/profile/authors/14909287) | [Personal Website](https://mdether.wixsite.com/ether/projects)
 
 ---
